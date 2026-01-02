@@ -1,1 +1,0 @@
-# DioorAi.bot
